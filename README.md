@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Prathap-illuminate
+- 👋 Hi, I’m Prathap
 - 👀 I’m interested in Learning new skills
 - 🌱 I’m currently learning how to solve complex problems
 - 💞️ I’m looking to collaborate on anyone who will help me to rise
